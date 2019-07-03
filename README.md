@@ -10,17 +10,15 @@
 
 ## what to see
 
-- Eisbachwelle
+- Visit Eisbachwelle.
 
-- Englischer Garten
-
-## what to do
+- Visit Englischer Garten.
 
 - The best way to see the city is on bike. Do a bike tour. (e.g. https://www.mikesbiketours.com/munich/)
 
-- Isar Surfing (http://www.inspirationsforlife.org/isar-rafting/)
+- Isar Surfing (http://www.inspirationsforlife.org/isar-rafting/).
 
-- Swimming in Eisbach (https://www.weltenbummlermag.de/eisbach-treiben-so-gehts/)
+- Swimming in Eisbach (https://www.weltenbummlermag.de/eisbach-treiben-so-gehts/).
 
 - Visit Oktoberfest (https://www.oktoberfest.de/), if you're not lucky enough to be in Munich, when it's happening, you can still visit the Berr and Oktoberfest Museum (https://www.bier-und-oktoberfestmuseum.de/) and the Hofbräuhaus (https://goo.gl/maps/qj9jqZ15eaauc3kdA)
 
@@ -30,8 +28,8 @@
 
 ## science
 
-- visit the Deutsches Museum (https://www.deutsches-museum.de/)
+- Visit the Deutsches Museum (https://www.deutsches-museum.de/).
 
 ## cars
 
-- visit the BMW Welt (https://www.bmw-welt.com/)
+- Visit the BMW Welt (https://www.bmw-welt.com/).
