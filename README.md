@@ -33,3 +33,7 @@
 ## cars
 
 - Visit the BMW Welt (https://www.bmw-welt.com/).
+
+## cinema
+
+- Cinema München (https://www.cinema-muenchen.de/) and Museum Lichtspiele (https://www.museum-lichtspiele.de/) are nice cinemas that are showing original versions. They both have good popcorn and amazing nachos.
