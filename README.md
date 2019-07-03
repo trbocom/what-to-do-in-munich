@@ -8,6 +8,8 @@
 
 - Pizzeria Mimme et Co. (https://goo.gl/maps/EfH51g7J9AhwwcjQA): best Pizza in town
 
+- Chopan: really good Afghan food
+
 ## what to see
 
 - Visit Eisbachwelle.
