@@ -1,4 +1,4 @@
-# what-to-do-in-munich
+# What to do in Munich?
 
 ## where to eat
 
@@ -24,7 +24,7 @@
 
 - Visit a beer garden in the summer. While the food at the bigger ones is not always the best, the atmosphere of the huge beergardens can be very cozy ("gemütlich") and relaxing. Biergarten am chinesischen Turm (https://goo.gl/maps/PxmbKVe4ZcEi1ZQR8) and Augustinerkeller (https://goo.gl/maps/6dXGcTPQc7KhDxdx7) are good ones. Very good food is available e.g. in a smaller one called Biergarten am Muffatwerk (https://goo.gl/maps/X5knn6ajkSobYxgu9).
 
-## if you're interested in ..., then ...
+## if you're interested in ...
 
 ## science
 
