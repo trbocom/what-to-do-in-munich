@@ -10,6 +10,10 @@
 
 - Chopan: really good Afghan food
 
+## what to do
+
+- Do a sightseeing bike tour (https://www.mikesbiketours.com/).
+
 ## what to see
 
 - Visit Eisbachwelle.
