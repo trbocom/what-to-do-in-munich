@@ -61,4 +61,4 @@
 
 ## hiking
 
-- Tegernsee inkluding Hut Neureuth (https://www.komoot.com/tour/522319167?ref=aso&share_token=a3xiJtrQNhUJ2XAOiOLdzAG0afTbyAAARHgPJWIHZRW62EUEW4)
+- Tegernsee including Hut Neureuth (https://www.komoot.com/tour/522319167?ref=aso&share_token=a3xiJtrQNhUJ2XAOiOLdzAG0afTbyAAARHgPJWIHZRW62EUEW4)
