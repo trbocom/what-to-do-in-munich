@@ -58,3 +58,7 @@
 ## cinema
 
 - Cinema München (https://www.cinema-muenchen.de/) and Museum Lichtspiele (https://www.museum-lichtspiele.de/) are nice cinemas that are showing original versions. They both have good popcorn and amazing nachos.
+
+## hiking
+
+- Tegernsee inkluding Hut Neureuth (https://www.komoot.com/tour/522319167?ref=aso&share_token=a3xiJtrQNhUJ2XAOiOLdzAG0afTbyAAARHgPJWIHZRW62EUEW4)
