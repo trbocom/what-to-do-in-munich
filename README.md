@@ -4,11 +4,20 @@
 
 - Turkitch (https://goo.gl/maps/9MV21qFdrffX4mGk8): best Döner in town
 
-- Kaisergarten: traditional Bavarian Restaurant, try the Kaiserschmarrn and the Schweinebraten
-
 - Pizzeria Mimme et Co. (https://goo.gl/maps/EfH51g7J9AhwwcjQA): best Pizza in town
 
 - Chopan: really good Afghan food
+
+### where to eat bavarian
+
+- Kaisergarten: traditional Bavarian Restaurant, try the Kaiserschmarrn and the Schweinebraten
+
+- Görreshof (https://goo.gl/maps/yZ4L9fEDR3xoxZVQ6)
+
+- Weinbauer (https://goo.gl/maps/bZQjuZ2b8DeLTNA98)
+
+- Obacht (https://g.page/Obacht?share)
+
 
 ## what to do
 
