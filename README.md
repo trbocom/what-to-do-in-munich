@@ -18,6 +18,8 @@
 
 - Obacht (https://g.page/Obacht?share)
 
+- Hofbräu am Oberwiesenfeld (https://goo.gl/maps/ePUjvqunAx2GztuS9)
+
 
 ## what to do
 
