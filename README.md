@@ -1,5 +1,7 @@
 # What to do in Munich?
 
+The recommendations for Munich from the Chatchamp team.
+
 ## where to eat
 
 - Turkitch (https://goo.gl/maps/9MV21qFdrffX4mGk8): best Döner in town
