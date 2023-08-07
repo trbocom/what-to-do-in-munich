@@ -9,6 +9,7 @@ The recommendations for Munich from the Chatchamp team.
 - Pizzeria Mimme et Co. (https://goo.gl/maps/EfH51g7J9AhwwcjQA): best Pizza in town
 
 - Chopan: really good Afghan food
+- Takumi: https://www.takumimunich.com/
 
 ### where to eat bavarian
 
